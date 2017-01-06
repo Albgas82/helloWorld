@@ -6,4 +6,3 @@ E sou de Portugal
 
 E esta heim?
 
-e agora??
